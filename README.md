@@ -1,1 +1,1 @@
-# Mojix Inc
+# Mojix Inc.
